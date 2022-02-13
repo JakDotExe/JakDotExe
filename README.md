@@ -10,6 +10,7 @@
 🌱 I am currently working as an SEO Specialist and have a desire to integrate my love for coding into my Job to optimise my workflow and Increase my Productivity.
 
 📫 How to reach me:
+
       ~ Protonmail
         JakDotExe@protonmail.com
         
